@@ -14,6 +14,9 @@ https://docspace-yfcswq.onlyoffice.com/s/4CLwXTCTgp3Q6mC
 - **Editable versions** – for open collaboration and ongoing refinement  
 - **Read-only versions** – For downloading original file
 
+*Files are also available to download here.
+https://drive.proton.me/urls/A5090QB9XW#PjY3xcZWTbec*
+
 ---
 
 ## Parallels Master
